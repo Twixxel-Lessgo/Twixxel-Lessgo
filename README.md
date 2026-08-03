@@ -1,5 +1,5 @@
 ##            . Twixxen / Twixxel .
 
-![image alt ](https://github.com/Twixxel-Lessgo/Twixxel-Lessgo/blob/7930bf4b21865215c4aa42091278b8244a11311b/He'll%20move%20on_.jpg)
+![image alt ](https://github.com/Twixxel-Lessgo/Twixxel-Lessgo/blob/caaa8118bf279876d261faac42d95328915c7631/Ba%C5%9Fl%C4%B1ks%C4%B1z1_20260803033155.png)
 
 @ponytown's Twixxel
