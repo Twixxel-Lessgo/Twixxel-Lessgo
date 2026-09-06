@@ -5,5 +5,8 @@
 
 wip HELP 
 
-
 Thanks to : 
+[@pt-contributers](https://github.com/pt-contributers)
+[@title-town](https://github.com/title-town)
+[@pt-heavyfictkin](https://github.com/pt-hall-of-media)
+[@pt-fashion](https://github.com/pt-fashion)
