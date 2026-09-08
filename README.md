@@ -9,7 +9,7 @@ Special Thanks To :
 ×
 [@title-town](https://github.com/title-town)
 ×
-[@pt-heavyfictkin](https://github.com/pt-hall-of-media)
+[@pt-heavyfictkin](https://github.com/pt-heavyfictkin)
 ×
 [@pt-fashion](https://github.com/pt-fashion)
 ×
