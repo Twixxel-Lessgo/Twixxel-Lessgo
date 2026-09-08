@@ -14,3 +14,6 @@ Special Thanks To :
 [@pt-fashion](https://github.com/pt-fashion)
 ×
 [@pt-hall-of-media](https://github.com/pt-hall-of-media)
+
+
+![twixxel](https://img.shields.io/badge/Yazım-Mavi-blue)
