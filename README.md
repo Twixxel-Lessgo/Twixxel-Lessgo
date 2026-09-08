@@ -16,4 +16,4 @@ Special Thanks To :
 [@pt-hall-of-media](https://github.com/pt-hall-of-media)
 
 
-![twixxel](https://img.shields.io/badge/Yazım-Mavi-blue)
+![Twix](https://img.shields.io/badge/Twix-Views-blue)
