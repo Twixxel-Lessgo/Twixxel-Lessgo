@@ -2,7 +2,7 @@
 ⺡ㅤ﹒ 
 
 
-wip bro watcha looking at🥹 go sign mu strawpage
+wip bro watcha looking at🥹 go sign my Ata🥹🥹
 
 ⺡ㅤ﹒ Special Thanks To ⺡ㅤ﹒: 
 
