@@ -2,10 +2,11 @@
 ⺡ㅤ﹒ 
 
 
- ![image alt ](https://github.com/Twixxel-Lessgo/Twixxel-Lessgo/blob/811cbeab898000b1cd47d32bf4cb71fc52dd2b32/He'll%20move%20on_.jpg)
+wip bro watcha looking at🥹 go sign mu strawpage
+
+⺡ㅤ﹒ Special Thanks To ⺡ㅤ﹒: 
 
 
-Special Thanks To : 
   ⺡ㅤ﹒ 
 [@pt-contributers](https://github.com/pt-contributers)
 ⺡ㅤ﹒ 
