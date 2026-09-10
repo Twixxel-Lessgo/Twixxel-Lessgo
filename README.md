@@ -1,4 +1,4 @@
-![Profile Views](https://komarev.com/ghpvc/?username=Twixxel-Lessgo)
+![twix bar's](https://komarev.com/ghpvc/?username=Twixxel-Lessgo)
 ⺡ㅤ﹒ 
 
 
