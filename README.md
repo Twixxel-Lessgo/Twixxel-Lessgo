@@ -1,12 +1,12 @@
 ![twix bar's](https://komarev.com/ghpvc/?username=Twixxel-Lessgo)
 ⺡ㅤ﹒ 
 
-wip ig. laxy
+wip ig. lazy . . .
 
  [ata !](https://twixxel.atabook.org)
  
 
-⺡ㅤ﹒ Special Thanks To ⺡ㅤ﹒: 
+⺡ㅤ﹒ Awhh Specially Thanks To Y'all !!! ⺡ㅤ﹒: 
 
   ⺡ㅤ﹒ 
 [@pt-contributers](https://github.com/pt-contributers)
