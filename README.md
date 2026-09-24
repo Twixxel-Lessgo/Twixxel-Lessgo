@@ -1,9 +1,9 @@
-![twix bar's](https://komarev.com/ghpvc/?username=Twixxel-Lessgo)
+![twix bars](https://komarev.com/ghpvc/?username=Twixxel-Lessgo)
 ⺡ㅤ﹒ 
 
 wip ig. lazy . . .
 
- [ata !](https://twixxel.atabook.org)
+ [新book](https://twixxel.atabook.org)
  
 
 ⺡ㅤ﹒ Awhh Specially Thanks To Y'all !!! ⺡ㅤ﹒: 
