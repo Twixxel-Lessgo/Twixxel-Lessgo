@@ -8,9 +8,9 @@
 
  <div align="center">
 <details>
-<summary>${\color{#55595a}\text{All in progress lol}}$</summary>
+<summary>${\color{#4C5238}\text{All in progress lol}}$</summary>
   
-${\color{#COLORHEX}\text{wip}}$ <br> ${\color{#COLORHEX}\text{wip}}$ <br> ${\color{#COLORHEX}\text{wip}}$ <br> ${\color{#COLORHEX}\text{wip}}$ <br> ${\color{#COLORHEX}\text{wip}}$ <br>
+${\color{#555A43}\text{wip}}$ <br> ${\color{#4C5238}\text{wip}}$ <br> ${\color{#4C5238}\text{wip}}$ <br> ${\color{#555A43}\text{wip}}$ <br> ${\color{#4C5238}\text{wip}}$ <br>
 
 
 
