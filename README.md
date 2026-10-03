@@ -23,7 +23,7 @@ ${\color{#fffff}{\textsf :3}} \color{#fffff}{\textsf{wip!}} \color{#fffff}{\
 ${\color{#fffff}{\textsf wip!}} \color{#fffff}{\textsf{come}} \color{#fffff}{\textsf{later}}  \color{#fffff}{\textsf{!}}$
 <br/>
 
-<p align="center">${\textsf{\color{#025600} ✦}}$ 
+<p align="center">${\textsf{\color{#fffff} ✦}}$ 
 
 ${\color{#fffff}{\textsf all}} \color{#fffff}{\textsf{in}} \color{#fffff}{\textsf{progress}}  \color{#fffff}{\textsf{cries}}$
 <br/>
