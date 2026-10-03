@@ -12,10 +12,10 @@
 ${\color{#555A43}\text{wip}}$ <br> ${\color{#4C5238}\text{wip}}$ <br> ${\color{#4C5238}\text{wip}}$ <br> ${\color{#555A43}\text{wip}}$ <br> ${\color{#4C5238}\text{wip}}$ <br>
 
 
- <div align="right">
+ <div align="center">
 <details>
 <summary>${\color{#2f3232}\text{Thank you so much}}$</summary>
  
- [](https://twixxel.atabook.org)◜✦◞[](https://spokeshere-twixxen.straw.page)◜✦◞[](https://pronouns.cc/@Twixxenn-Twixxel)◜✦◞[](https://guns.lol/twixxell)◜✦◞[](https://walloftext.co/twixxell)
+ [title-town](https://github.com/title-town) ◜✦◞ []() ◜✦◞ [pt-contributers](https://github.com/pt-contributers) ◜✦◞ [pt-heavyfictkin](https://github.com/pt-heavyfictkin) ◜✦◞ [pt-fashion](https://github.com/pt-fashion) ◜✦◞ [pt-hall-of-media](https://github.com/pt-hall-of-media)
   
 <br> ${\color{#COLORHEX}\text{}}$ <br>
