@@ -1,6 +1,6 @@
-<img width="640" src="" alt="dividerr" align="right" width="600"/></p>
+<img width="640" src="" alt="divider" align="right" width="600"/></p>
 
-
+[![Hits](https://hits.sh/github.com/Twixxel-Lessgo.svg?style=plastic&label=(%5E%CF%89%5E)%20%E2%99%AA&extraCount=2000&color=2f3232&labelColor=00000)](https://hits.sh/github.com/Twixxel-Lessgo/)
 
 
 
@@ -9,26 +9,26 @@
 
 
 
-${\textsf{\color{#185600} ✦}}$ 
+${\textsf{\color{#fffff} ✦}}$ 
 ⠀ ⠀ ⠀ ⠀ ⠀
 
-<p align="center">${\textsf{\color{#185600} °}}$ 
+<p align="center">${\textsf{\color{#fffff} °}}$ 
 
 ㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤ⠀ ⠀ ⠀ ⠀ ⠀ ⠀ ⠀
 ⠀ ⠀ ⠀ ⠀ ⠀ ⠀ ⠀
 
-${\color{#00FFFF}{\textsf :3}} \color{#00F472}{\textsf{wip!}} \color{#00FF00}{\textsf{wip!}}  \color{#65FF00}{\textsf{wip!}}$
+${\color{#fffff}{\textsf :3}} \color{#fffff}{\textsf{wip!}} \color{#fffff}{\textsf{wip!}}  \color{#fffff}{\textsf{wip!}}$
 <br/>
 
-${\color{#00FF00}{\textsf wip!}} \color{#61FF00}{\textsf{come}} \color{#8CFF00}{\textsf{later}}  \color{#DDFF00}{\textsf{!}}$
+${\color{#fffff}{\textsf wip!}} \color{#fffff}{\textsf{come}} \color{#fffff}{\textsf{later}}  \color{#fffff}{\textsf{!}}$
 <br/>
 
 <p align="center">${\textsf{\color{#025600} ✦}}$ 
 
-${\color{#00DE42}{\textsf all}} \color{#00FB25}{\textsf{in}} \color{#81EC00}{\textsf{progress}}  \color{#94E400}{\textsf{cries}}$
+${\color{#fffff}{\textsf all}} \color{#fffff}{\textsf{in}} \color{#fffff}{\textsf{progress}}  \color{#fffff}{\textsf{cries}}$
 <br/>
-${\color{#00DD00}{\textsf all}} \color{#00F06C}{\textsf{in}} \color{#10F693}{\textsf{progress}}   \color{#00FFCB}{\textsf{!!!}}$
-<p align="center">${\textsf{\color{#025600} hihihi!}}$ 
+${\color{#fffff}{\textsf all}} \color{#fffff}{\textsf{in}} \color{#fffff}{\textsf{progress}}   \color{#fffff}{\textsf{!!!}}$
+<p align="center">${\textsf{\color{#fffff} hihihi!}}$ 
  
 <details>
  <summary> $${\color{#FFFFFF}  \space  \space ♡}$$</summary>
@@ -42,34 +42,17 @@ ${\color{#00DD00}{\textsf all}} \color{#00F06C}{\textsf{in}} \color{#10F693}
 
  　
 
-[](https://boosferholic.atabook.org/) ${\textsf{\color{#E1FF00} }}$
-[](https://bossfer.straw.page) ${\textsf{\color{#E1FF00} }}$
-[](https://pronouns.cc/@boosferholic)
-
-<img width="640" src="" alt="dividerrrr" align="right" width="600"/></p>
-
-
+[]() ${\textsf{\color{#fffff} ♡}}$
+[]() ${\textsf{\color{#fffff} ♡}}$
+[]() ${\textsf{\color{#fffff} ♡}}$
+[]() ${\textsf{\color{#fffff} ♡}}$
+[]() ${\textsf{\color{#fffff} ♡}}$
 
 
-
-
+<img width="640" src="" alt="divider" align="right" width="600"/></p>
 
 
 
 ◜✦◞
 ㅤㅤㅤㅤㅤㅤㅤ                  ㅤㅤㅤㅤㅤㅤㅤㅤㅤ
 ⺡ㅤ🌈﹒
-
- <div align="right">
-<details>
-<summary>${\color{#2f3232}\text{}}$</summary>
-  
-${\color{#2f3232}\text{wip}}$ <br> ${\color{#2f3232}\text{wip}}$ <br> ${\color{#2f3232}\text{wip}}$ <br> ${\color{#2f3232}\text{wip}}$ <br> ${\color{#2f3232}\text{wip}}$ <br>
-
- <div align="center">
-<details>
-<summary>${\color{#2f3232}\text{Thank you so much}}$</summary>
- 
-Pony.town's Twixxel <br> <br> <br> [title-town](https://github.com/title-town) ◜✦◞ []() ◜✦◞ [pt-contributers](https://github.com/pt-contributers) ◜✦◞ [pt-heavyfictkin](https://github.com/pt-heavyfictkin) ◜✦◞ [pt-fashion](https://github.com/pt-fashion) ◜✦◞ [pt-hall-of-media](https://github.com/pt-hall-of-media)
-  
-<br> ${\color{#COLORHEX}\text{}}$ <br>
