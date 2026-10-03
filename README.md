@@ -17,25 +17,27 @@ ${\textsf{\color{#fffff} ✦}}$
 ㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤ⠀ ⠀ ⠀ ⠀ ⠀ ⠀ ⠀
 ⠀ ⠀ ⠀ ⠀ ⠀ ⠀ ⠀
 
-${\color{#fffff}{\textsf :3}} \color{#fffff}{\textsf{wip!}} \color{#fffff}{\textsf{wip!}}  \color{#fffff}{\textsf{wip!}}$
+${\color{#fffff}{\textsf  (˶' ꒳ '˶)/}} \color{#fffff}{\textsf{Twixxel}} \color{#fffff}{\textsf{—}}  \color{#fffff}{\textsf{Shin}}$
 <br/>
 
-${\color{#fffff}{\textsf wip!}} \color{#fffff}{\textsf{come}} \color{#fffff}{\textsf{later}}  \color{#fffff}{\textsf{!}}$
+${\color{#fffff}{\textsf C+h}} \color{#fffff}{\textsf{always}} \color{#fffff}{\textsf{might}}  \color{#fffff}{\textsf{late resp}}$
 <br/>
 
-<p align="center">${\textsf{\color{#fffff} ✦}}$ 
+<p align="center">${\textsf{\color{#fffff} -13 Dni}}$ 
 
-${\color{#fffff}{\textsf all}} \color{#fffff}{\textsf{in}} \color{#fffff}{\textsf{progress}}  \color{#fffff}{\textsf{cries}}$
+${\color{#fffff}{\textsf Mostly}} \color{#fffff}{\textsf{in}} \color{#fffff}{\textsf{Mcyt}}  \color{#fffff}{\textsf{Area}}$
 <br/>
 ${\color{#fffff}{\textsf all}} \color{#fffff}{\textsf{in}} \color{#fffff}{\textsf{progress}}   \color{#fffff}{\textsf{!!!}}$
-<p align="center">${\textsf{\color{#fffff} hihihi!}}$ 
+<p align="center">${\textsf{\color{#fffff} bmf pls}}$ 
  
 <details>
- <summary> $${\color{#FFFFFF}  \space  \space ♡}$$</summary>
+ <summary> $${\color{#FFFFFF} Thank \space You \space ♡}$$</summary>
 
-<sub>[](https://github.com/pt-hall-of-media)</sub>
-<sub>[](https://github.com/pt-walk-of-fame)</sub>
-<sub>[](https://github.com/title-town )</sub>
+<sub>[pt-hall-of-media](https://github.com/pt-hall-of-media)</sub>
+<sub>[pt-fashion](https://github.com/pt-walk-of-fame)</sub>
+<sub>[title-town](https://github.com/title-town )</sub>
+<sub>[pt-contributers](https://github.com/pt-contributers)</sub>
+<sub>[pt-heavyfictkin](https://github.com/pt-heavyfictkin)
 
 </details>
 
