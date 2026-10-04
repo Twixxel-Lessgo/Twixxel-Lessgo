@@ -1,4 +1,6 @@
 <img width="640" src="" alt="" align="right" width="600"/></p>
+gonna work on colorhexes soon
+
 
 [![Twix bars](https://hits.sh/github.com/Twixxel-Lessgo.svg?style=plastic&label=(%5E%CF%89%5E)%20%E2%99%AA&extraCount=2000&color=2f3232&labelColor=00000)](https://hits.sh/github.com/Twixxel-Lessgo/)
 
