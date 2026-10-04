@@ -1,6 +1,6 @@
-<img width="640" src="" alt="uhh idk i cant find any driver" align="right" width="600"/></p>
+<img width="640" src="" alt="" align="right" width="600"/></p>
 
-[![Hits](https://hits.sh/github.com/Twixxel-Lessgo.svg?style=plastic&label=(%5E%CF%89%5E)%20%E2%99%AA&extraCount=2000&color=2f3232&labelColor=00000)](https://hits.sh/github.com/Twixxel-Lessgo/)
+[![Twix bars](https://hits.sh/github.com/Twixxel-Lessgo.svg?style=plastic&label=(%5E%CF%89%5E)%20%E2%99%AA&extraCount=2000&color=2f3232&labelColor=00000)](https://hits.sh/github.com/Twixxel-Lessgo/)
 
 
 
@@ -77,7 +77,7 @@ ${\color{#fffff}{\textsf "⠀ ⠀ Blb}} \color{#fffff}{\textsf{blblb}} \colo
  
 <details>
 
- <summary> $${\color{#FFFFFF}My \space kyute \space oomfs}$$</summary>
+ <summary> $${\color{#FFFFFF}Click 2 \space see \space oomfie's}$$</summary>
 
 
 
@@ -96,5 +96,7 @@ ${\color{#fffff}{\textsf "⠀ ⠀ Blb}} \color{#fffff}{\textsf{blblb}} \colo
 <sub>[](https://github.com/)</sub>
 
 
-◜✦◞ㅤㅤ⠀ ⠀ ⠀ ⠀ ⠀⠀ ⠀ ⠀ ⠀ ⠀ㅤㅤㅤㅤㅤ                  ㅤㅤㅤㅤㅤㅤㅤㅤㅤ
-⺡ㅤ🌈﹒
+◜✦◞ㅤ
+ㅤ⠀ ⠀ ⠀ ⠀ ⠀⠀ ⠀ ⠀ ⠀ ⠀ㅤㅤㅤㅤㅤ                  ㅤㅤㅤㅤㅤㅤㅤㅤㅤ
+⺡ㅤ🌈﹒ ₊˚⊹  ˖⁺ ༝⭑ ♡⃕　﹑   ₊ ݁. • 
+ 
