@@ -44,18 +44,17 @@ ${\color{#fffff}{\textsf all}} \color{#fffff}{\textsf{in}} \color{#fffff}{\t
  
 <details>
  <summary> $${\color{#FFFFFF}thank \space you \space ♡}$$</summary>
-</details>
-
-
+ 
 <sub>[pt-hall-of-media](https://github.com/pt-hall-of-media)</sub>
 <sub>[pt-walk-of-fame](https://github.com/pt-walk-of-fame)</sub>
 <sub>[title-town](https://github.com/title-town )</sub>
 <sub>[pt-contributers](https://github.com/pt-contributers)</sub>
-<sub>[pt-heavyfictkin](https://github.com/pt-heavyfictkin)
-<sub>[pt-fashion](https://github.com/pt-fashion)
+<sub>[pt-heavyfictkin](https://github.com/pt-heavyfictkin)</sub>
+<sub>[pt-fashion](https://github.com/pt-fashion)</sub>
+</details>
 
-
+⠀ ⠀ ⠀ ⠀ ⠀⠀ ⠀ ⠀ ⠀ ⠀
 
 ◜✦◞
-ㅤㅤㅤㅤㅤㅤㅤ                  ㅤㅤㅤㅤㅤㅤㅤㅤㅤ
-⺡ㅤ🌈﹒               sign my Ata to be my oomf !
+ㅤㅤ⠀ ⠀ ⠀ ⠀ ⠀⠀ ⠀ ⠀ ⠀ ⠀ㅤㅤㅤㅤㅤ                  ㅤㅤㅤㅤㅤㅤㅤㅤㅤ
+⺡ㅤ🌈﹒   ⠀ ⠀ ⠀ ⠀ ⠀            sign my Ata to be my oomf !
