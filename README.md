@@ -81,10 +81,14 @@ ${\color{#fffff}{\textsf "⠀ ⠀ Blb}} \color{#fffff}{\textsf{blblb}} \colo
 
 
 
- $${\color{#FFFFFF} Void Duo !♡⃕　﹑ \space  ₊ ݁. •:}$$  <sub>[@1SPOKEISHERE](https://github.com/1SPOKEISHERE)</sub> ♡⃕　
+ $${\color{#FFFFFF} My Duo ♡⃕　﹑ \space  ₊ ݁. •:}$$  <sub>[@1SPOKEISHERE](https://github.com/1SPOKEISHERE)</sub> ♡⃕　
+<br/>
+<br/>
+$${\color{#FFFFF} My Stupid Trio ♡⃕　﹑ \space  ₊• ₊˚⊹ }$$  <sub>[@Gatita-here](https://github.com/Gatita-here)</sub> ♡ <sub>[@TheHacker7n7](https://github.com/TheHacker7n7)</sub>
+<br/>
 <br/>
 $${\color{#FFFFFF} Sillys♡⃕　﹑  ₊ ݁. •:}$$ ♡
-<sub>[](https://github.com/)</sub>
+<sub>[@Acxy](https://github.com/AcxerSonnellino)</sub>
 <sub>[](https://github.com/)</sub>
 <sub>[](https://github.com/)</sub>
 <sub>[](https://github.com/)</sub>
