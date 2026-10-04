@@ -32,22 +32,22 @@ ${\color{#fffff}{\textsf all}} \color{#fffff}{\textsf{in}} \color{#fffff}{\t
 <details>
  <summary> $${\color{#FFFFFF} Sign \space them \space plis \space ♡}$$</summary>
 
-<sub>[ata](https://twixxel.atabook.org)</sub>
+ (˶' ꒳ '˶)
 <br>
-<sub>[straw](https://spokeshere-twixxen.straw.page)</sub>
-<br>
-<sub>[prns](https://pronouns.cc/@Twixxel-Twixxen)</sub>
-<br>
-<sub>[guns](https://guns.lol/twixell)</sub>
-<sub>[wall](https://walloftext.co/twixxel)</sub>
+<sub>[ata](https://twixxel.atabook.org)</sub> ◜✦◞ <sub>[straw](https://spokeshere-twixxen.straw.page)</sub> ◜✦◞ <sub>[prns](https://pronouns.cc/@Twixxel-Twixxen)</sub> ◜✦◞ <sub>[guns](https://guns.lol/twixell)</sub> ◜✦◞ <sub>[wall](https://walloftext.co/twixxel)</sub>
 
 </details>
- 　
+ 
 
-<br> <br> ${\textsf{\color{#fffff} ♡}}$ <br> ${\textsf{\color{#fffff} ♡}}$ <br> ${\textsf{\color{#fffff} ♡}}$<br> ${\textsf{\color{#fffff} ♡}}$ <br> ${\textsf{\color{#fffff} ♡}}$
+<sub>[pt-hall-of-media](https://github.com/pt-hall-of-media)</sub>
+<sub>[pt-walk-of-fame](https://github.com/pt-walk-of-fame)</sub>
+<sub>[title-town](https://github.com/title-town )</sub>
+<sub>[pt-contributers](https://github.com/pt-contributers)</sub>
+<sub>[pt-heavyfictkin](https://github.com/pt-heavyfictkin)
+<sub>[pt-fashion](https://github.com/pt-fashion)
 
 
 
 ◜✦◞
 ㅤㅤㅤㅤㅤㅤㅤ                  ㅤㅤㅤㅤㅤㅤㅤㅤㅤ
-⺡ㅤ🌈﹒
+⺡ㅤ🌈﹒               sign my Ata to be my oomf !
