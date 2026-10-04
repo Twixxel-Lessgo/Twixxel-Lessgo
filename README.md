@@ -52,6 +52,11 @@ ${\color{#fffff}{\textsf "⠀ ⠀ Blb}} \color{#fffff}{\textsf{blblb}} \colo
 <sub>[pt-contributers](https://github.com/pt-contributers)</sub>
 <sub>[pt-heavyfictkin](https://github.com/pt-heavyfictkin)</sub>
 <sub>[pt-fashion](https://github.com/pt-fashion)</sub>
+<sub>[pt-nominations](https://github.com/pt-nominations)</sub>
+<sub>[ponytowns-rewards](https://ponytowns-rewards)</sub>
+<sub>[]()</sub>
+<sub>[]()</sub>
+
 </details>
 
 <br/>
