@@ -61,24 +61,6 @@ ${\color{#fffff}{\textsf "⠀ ⠀ Blb}} \color{#fffff}{\textsf{blblb}} \colo
 
 
 <br/>
-<p align="center">${\textsf{\color{#fffff} —}}$ 
- 
-<details>
- <summary> $${\color{#FFFFFF}thank \space you \space ♡}$$</summary>
- 
-<sub>[](https://github.com/)</sub>
-<sub>[](https://github.com/)</sub>
-<sub>[](https://github.com/)</sub>
-<sub>[](https://github.com/)</sub>
-<sub>[](https://github.com/)</sub>
-<sub>[](https://github.com/)</sub>
-<sub>[](https://github.com/)</sub>
-<sub>[](https://github.com/)</sub>
-<sub>[](https://github.com/)</sub>
-<sub>[](https://github.com/)</sub>
-
-
-<br/>
 <p aling="center">⠀ ⠀ ⠀ ⠀ ⠀⠀ ⠀ ⠀ ⠀ ⠀
 <img src="https://github.com/AcxerSonnellino/AcxerSonnellino/blob/e9851af1ec82091ab34673e338c90d9b3a357529/tumblr_d0cee632d56c2adbadbc82179c66e9d5_a8586f26_75.gif" width="30" />
   ° Art is by me . 
@@ -89,3 +71,26 @@ ${\color{#fffff}{\textsf "⠀ ⠀ Blb}} \color{#fffff}{\textsf{blblb}} \colo
 ◜✦◞
 ㅤㅤ⠀ ⠀ ⠀ ⠀ ⠀⠀ ⠀ ⠀ ⠀ ⠀ㅤㅤㅤㅤㅤ                  ㅤㅤㅤㅤㅤㅤㅤㅤㅤ
 ⺡ㅤ🌈﹒   ⠀ ⠀ ⠀ ⠀ ⠀            sign my Ata to be my oomf !
+
+<br/>
+<p align="center">${\textsf{\color{#fffff} —}}$ 
+ 
+<details>
+
+ <summary> $${\color{#FFFFFF}My \space kyute \space oomfs}$$</summary>
+
+
+
+<sub>[](https://github.com/)</sub>
+<sub>[](https://github.com/)</sub>
+<sub>[](https://github.com/)</sub>
+<sub>[](https://github.com/)</sub>
+<sub>[](https://github.com/)</sub>
+<sub>[](https://github.com/)</sub>
+<sub>[](https://github.com/)</sub>
+<sub>[](https://github.com/)</sub>
+<sub>[](https://github.com/)</sub>
+<sub>[](https://github.com/)</sub>
+
+◜✦◞ㅤㅤ⠀ ⠀ ⠀ ⠀ ⠀⠀ ⠀ ⠀ ⠀ ⠀ㅤㅤㅤㅤㅤ                  ㅤㅤㅤㅤㅤㅤㅤㅤㅤ
+⺡ㅤ🌈﹒
