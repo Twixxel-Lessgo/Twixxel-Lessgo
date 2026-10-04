@@ -9,7 +9,7 @@
 
 
 
-${\textsf{\color{#fffff} (✿˃ ᗜ ˂˵)⠀ ⠀ ⠀ ⠀ ⠀Gift Me Twixxel Ponies please !⠀ ⠀ ⠀ ⠀ ⠀✦}}$ 
+${\textsf{\color{#fffff} (✿˃ ᗜ ˂˵)⠀ ⠀ ⠀ ⠀ ⠀Gift Me Twixxel / Spoke / Sx7 Ponies please !⠀ ⠀ ⠀ ⠀ ⠀✦}}$ 
 ⠀ ⠀ ⠀ ⠀ ⠀
 
 <p align="center">${\textsf{\color{#fffff} °}}$ 
