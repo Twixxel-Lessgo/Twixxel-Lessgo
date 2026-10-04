@@ -77,10 +77,13 @@ ${\color{#fffff}{\textsf "⠀ ⠀ Blb}} \color{#fffff}{\textsf{blblb}} \colo
  
 <details>
 
- <summary> $${\color{#FFFFFF}Click 2 \space see \space oomfie's}$$</summary>
+ <summary> $${\color{#FFFFFF}Click \space to \space see \space oomfie's}$$</summary>
 
 
 
+ $${\color{#FFFFFF} Void Duo !♡⃕　﹑ \space  ₊ ݁. •:}$$  <sub>[@1SPOKEISHERE](https://github.com/1SPOKEISHERE)</sub> ♡⃕　
+<br/>
+$${\color{#FFFFFF} Sillys♡⃕　﹑  ₊ ݁. •:}$$ ♡
 <sub>[](https://github.com/)</sub>
 <sub>[](https://github.com/)</sub>
 <sub>[](https://github.com/)</sub>
@@ -94,7 +97,8 @@ ${\color{#fffff}{\textsf "⠀ ⠀ Blb}} \color{#fffff}{\textsf{blblb}} \colo
 <sub>[](https://github.com/)</sub>
 <sub>[](https://github.com/)</sub>
 <sub>[](https://github.com/)</sub>
-
+<sub>[](https://github.com/)</sub>
+<sub>[](https://github.com/)</sub>
 
 ◜✦◞ㅤ
 ㅤ⠀ ⠀ ⠀ ⠀ ⠀⠀ ⠀ ⠀ ⠀ ⠀ㅤㅤㅤㅤㅤ                  ㅤㅤㅤㅤㅤㅤㅤㅤㅤ
