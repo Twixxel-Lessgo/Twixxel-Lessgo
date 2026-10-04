@@ -4,8 +4,8 @@
 
 
 
-<img width="400" src="https://github.com/Twixxel-Lessgo/Twixxel-Lessgo/blob/3a90b1f9a2b459c83cfecdf1198392bcdd5c9b42/Untitled85_20261004022603.png" alt="Twixxel" align="left" width="300"/></p>
 
+<img width="400" src="https://github.com/Twixxel-Lessgo/Twixxel-Lessgo/blob/3a90b1f9a2b459c83cfecdf1198392bcdd5c9b42/Untitled85_20261004022603.png" alt="Twixxel" align="left" width="300"/></p>
 
 
 
@@ -13,8 +13,7 @@ ${\textsf{\color{#fffff} ✦}}$
 ⠀ ⠀ ⠀ ⠀ ⠀
 
 <p align="center">${\textsf{\color{#fffff} °}}$ 
-
-ㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤ⠀ ⠀ ⠀ ⠀ ⠀ ⠀ ⠀
+ㅤ  ㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤ⠀ ⠀ ⠀ ⠀ ⠀ ⠀ ⠀
 ⠀ ⠀ ⠀ ⠀ ⠀ ⠀ ⠀
 
 ${\color{#fffff}{\textsf  (˶' ꒳ '˶)/}} \color{#fffff}{\textsf{Twixxel}} \color{#fffff}{\textsf{—}}  \color{#fffff}{\textsf{Shin}}$
@@ -31,23 +30,21 @@ ${\color{#fffff}{\textsf all}} \color{#fffff}{\textsf{in}} \color{#fffff}{\t
 <p align="center">${\textsf{\color{#fffff} bmf pls}}$ 
  
 <details>
- <summary> $${\color{#FFFFFF} Thank \space You \space ♡}$$</summary>
+ <summary> $${\color{#FFFFFF} Sign \space them \space plis \space ♡}$$</summary>
 
-<sub>[pt-hall-of-media](https://github.com/pt-hall-of-media)</sub>
-<sub>[pt-fashion](https://github.com/pt-walk-of-fame)</sub>
-<sub>[title-town](https://github.com/title-town )</sub>
-<sub>[pt-contributers](https://github.com/pt-contributers)</sub>
-<sub>[pt-heavyfictkin](https://github.com/pt-heavyfictkin)
+<sub>[ata](https://twixxel.atabook.org)</sub>
+<br>
+<sub>[straw](https://spokeshere-twixxen.straw.page)</sub>
+<br>
+<sub>[prns](https://pronouns.cc/@Twixxel-Twixxen)</sub>
+<br>
+<sub>[guns](https://guns.lol/twixell)</sub>
+<sub>[wall](https://walloftext.co/twixxel)</sub>
 
 </details>
-
-
  　
 
- ${\textsf{\color{#fffff} ♡}}$ <br> ${\textsf{\color{#fffff} ♡}}$ <br> ${\textsf{\color{#fffff} ♡}}$<br> ${\textsf{\color{#fffff} ♡}}$ <br> ${\textsf{\color{#fffff} ♡}}$
-
-
-<img width="640" src="" alt="lazy" align="right" width="600"/></p>
+<br> <br> ${\textsf{\color{#fffff} ♡}}$ <br> ${\textsf{\color{#fffff} ♡}}$ <br> ${\textsf{\color{#fffff} ♡}}$<br> ${\textsf{\color{#fffff} ♡}}$ <br> ${\textsf{\color{#fffff} ♡}}$
 
 
 
