@@ -29,6 +29,11 @@ ${\color{#fffff}{\textsf Mostly}} \color{#fffff}{\textsf{in}} \color{#fffff}
 <br/>
 ${\color{#fffff}{\textsf "⠀ ⠀ Blb}} \color{#fffff}{\textsf{blblb}} \color{#fffff}{\textsf{blb}}   \color{#fffff}{\textsf{blblblb⠀ ⠀ ⠀"}}$
 <p align="center">${\textsf{\color{#fffff} bmf pls}}$ 
+<br/>
+<br/>
+
+ <sub> Art is by ִֶָ...𓂃 ࣪ ִֶָ་༘࿐ <sub>[Leker](https://github.com/FLORAISONS)</sub> </sub>
+<br/>
  
 <details>
  <summary> $${\color{#FFFFFF} Sign \space them \space plis \space ♡}$$</summary>
@@ -61,9 +66,9 @@ ${\color{#fffff}{\textsf "⠀ ⠀ Blb}} \color{#fffff}{\textsf{blblb}} \colo
 
 
 <br/>
-<p aling="center">⠀ ⠀ ⠀ ⠀ ⠀⠀ ⠀ ⠀ ⠀ ⠀
+<p aling="right">⠀ ⠀ ⠀ ⠀ ⠀⠀ ⠀ ⠀ ⠀ ⠀
 <img src="https://github.com/AcxerSonnellino/AcxerSonnellino/blob/e9851af1ec82091ab34673e338c90d9b3a357529/tumblr_d0cee632d56c2adbadbc82179c66e9d5_a8586f26_75.gif" width="30" />
-  ° Art is by LEKER !  . 
+  °  ִֶָ...𓂃 ࣪ ִֶָ་༘࿐  . 
   <img src="https://github.com/AcxerSonnellino/AcxerSonnellino/blob/0ee696b72b608327069640ef824615bd026d533e/tumblr_287d13cb87f6f46a872ba010276a6efc_a030fdc2_75.gif" width="30" />
 </p>
 
