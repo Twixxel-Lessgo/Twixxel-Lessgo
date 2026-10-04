@@ -9,7 +9,7 @@
 
 
 
-${\textsf{\color{#fffff} ✦}}$ 
+${\textsf{\color{#fffff} (✿˃ ᗜ ˂˵)⠀ ⠀ ⠀ ⠀ ⠀⠀ ⠀ ⠀ ⠀ ⠀✦}}$ 
 ⠀ ⠀ ⠀ ⠀ ⠀
 
 <p align="center">${\textsf{\color{#fffff} °}}$ 
@@ -34,10 +34,18 @@ ${\color{#fffff}{\textsf all}} \color{#fffff}{\textsf{in}} \color{#fffff}{\t
 
  (˶' ꒳ '˶)
 <br>
-<sub>[ata](https://twixxel.atabook.org)</sub> ◜✦◞ <sub>[straw](https://spokeshere-twixxen.straw.page)</sub> ◜✦◞ <sub>[prns](https://pronouns.cc/@Twixxel-Twixxen)</sub> ◜✦◞ <sub>[guns](https://guns.lol/twixell)</sub> ◜✦◞ <sub>[wall](https://walloftext.co/twixxel)</sub>
+<sub>[新book](https://twixxel.atabook.org)</sub> ◜✦◞ <sub>[straw](https://spokeshere-twixxen.straw.page)</sub> ◜✦◞ <sub>[prns](https://pronouns.cc/@Twixxel-Twixxen)</sub> ◜✦◞ <sub>[guns](https://guns.lol/twixell)</sub> ◜✦◞ <sub>[wall](https://walloftext.co/twixxel)</sub>
 
 </details>
+
+
+<br/>
+<p align="center">${\textsf{\color{#fffff} —}}$ 
  
+<details>
+ <summary> $${\color{#FFFFFF}thank \space you \space ♡}$$</summary>
+</details>
+
 
 <sub>[pt-hall-of-media](https://github.com/pt-hall-of-media)</sub>
 <sub>[pt-walk-of-fame](https://github.com/pt-walk-of-fame)</sub>
