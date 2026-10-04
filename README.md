@@ -10,7 +10,7 @@
 
 
 ${\textsf{\color{#fffff} (✿˃ ᗜ ˂˵)⠀⠀ ⠀Gift Me Twixxel / Spoke / Sx7 Ponies please !⠀ ⠀ ⠀✦}}$ 
-⠀ ⠀ ⠀ ⠀ ⠀
+⠀ ⠀ ⠀ ⠀ ⠀ㅤㅤㅤㅤTwixxel skin count : 68 𓂃 ♡⃕　﹑ !
 
 <p align="center">${\textsf{\color{#fffff} °}}$ 
 ㅤ  ㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤ⠀ ⠀ ⠀ ⠀ ⠀ ⠀ ⠀
