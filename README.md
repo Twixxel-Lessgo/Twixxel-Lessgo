@@ -83,9 +83,8 @@ ${\color{#fffff}{\textsf "⠀ ⠀ Blb}} \color{#fffff}{\textsf{blblb}} \colo
  
 <details>
 
- <summary> $${\color{#FFFFFF}Click \space to \space see \space oomfie's}$$</summary>
-
-
+ <summary> $${\color{#FFFFFF}Click \space to \space see \space oomfie's}$$</summary
+<br>
 
  $${\color{#FFFFFF} My \space Duo :D ♡⃕　﹑ \space My \space lil \space bro  ₊ ݁. •:}$$  <sub>[@1SPOKEISHERE](https://github.com/1SPOKEISHERE)</sub> ♡⃕　
 <br/>
@@ -96,7 +95,9 @@ $${\color{#FFFFF} My \space Stupid \space Trio \space Friend's ♡⃕　﹑ \spa
 <sub>$${\color{#FFFFFF} Sillys♡⃕　﹑  ₊ ݁. •:}$$<sub/>
 <br/>
 I LOVE ALL MY OOMFS !! <3
-
+<br/>
+<sub>[@HoroNekko](https://github.com/HoroNekko)</sub> <sub> MY MAMA!!<sub/>
+<br/>
 <sub>[@AcxerSonnellino](https://github.com/AcxerSonnellino)</sub>
 <sub>[@nullvoid](https://github.com/nullvoid)</sub>
 <sub>[@Nyankit](https://github.com/nyankit)</sub>
