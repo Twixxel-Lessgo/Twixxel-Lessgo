@@ -1,5 +1,4 @@
 <img width="640" src="" alt="" align="right" width="600"/></p>
-gonna work on colorhexes soon
 
 
 [![Twix bars](https://hits.sh/github.com/Twixxel-Lessgo.svg?style=plastic&label=(%5E%CF%89%5E)%20%E2%99%AA&extraCount=2000&color=2f3232&labelColor=00000)](https://hits.sh/github.com/Twixxel-Lessgo/)
@@ -12,7 +11,7 @@ gonna work on colorhexes soon
 
 
 ${\textsf{\color{#fffff} (✿˃ ᗜ ˂˵)⠀⠀ ⠀Gift Me Twixxel / Spoke / Sx7 Ponies please !⠀ ⠀ ⠀✦}}$ 
-⠀ ⠀ ⠀ ⠀ ⠀ㅤㅤㅤㅤTwixxel skin count : 68 𓂃 ♡⃕　﹑ !
+⠀ ⠀ ⠀ ⠀ ⠀ㅤㅤㅤㅤ<sub>Twixxel skin count : 68 𓂃 ♡⃕　﹑ !<sub/>
 
 <p align="center">${\textsf{\color{#fffff} °}}$ 
 ㅤ  ㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤ⠀ ⠀ ⠀ ⠀ ⠀ ⠀ ⠀
@@ -94,25 +93,34 @@ ${\color{#fffff}{\textsf "⠀ ⠀ Blb}} \color{#fffff}{\textsf{blblb}} \colo
 $${\color{#FFFFF} My Stupid Trio ♡⃕　﹑ \space  ₊• ₊˚⊹ }$$  <sub>[@Gatita-here](https://github.com/Gatita-here)</sub> ♡ <sub>[@TheHacker7n7](https://github.com/TheHacker7n7)</sub>
 <br/>
 <br/>
-$${\color{#FFFFFF} Sillys♡⃕　﹑  ₊ ݁. •:}$$ ♡
+<sub>$${\color{#FFFFFF} Sillys♡⃕　﹑  ₊ ݁. •:}$$<sub/>
+<br/>
+I LOVE ALL MY OOMFS !! <3
 
-IM TOO BUSY OF SCHOOL WILL FINISH THIS TOMORROW GUYS :(
-
-<sub>[@Acxy](https://github.com/AcxerSonnellino)</sub>
-<sub>[](https://github.com/)</sub>
-<sub>[](https://github.com/)</sub>
-<sub>[](https://github.com/)</sub>
-<sub>[](https://github.com/)</sub>
-<sub>[](https://github.com/)</sub>
-<sub>[](https://github.com/)</sub>
-<sub>[](https://github.com/)</sub>
-<sub>[](https://github.com/)</sub>
-<sub>[](https://github.com/)</sub>
-<sub>[](https://github.com/)</sub>
-<sub>[](https://github.com/)</sub>
-<sub>[](https://github.com/)</sub>
-<sub>[](https://github.com/)</sub>
-<sub>[](https://github.com/)</sub>
+<sub>[@AcxerSonnellino](https://github.com/AcxerSonnellino)</sub>
+<sub>[@Nyankit](https://github.com/)</sub>
+<sub>[@FLORAISONS](https://github.com/)</sub>
+<sub>[@PorphyroRoyal](https://github.com/)</sub>
+<sub>[@Chemicalshots](https://github.com/)</sub>
+<sub>[CloveredFields@](https://github.com/)</sub>
+<sub>[@ohmygodduh](https://github.com/)</sub>
+<sub>[@Larpchan](https://github.com/)</sub>
+<sub>[@](https://github.com/)</sub>
+<sub>[@](https://github.com/)</sub>
+<sub>[@](https://github.com/)</sub>
+<sub>[@](https://github.com/)</sub>
+<sub>[@](https://github.com/)</sub>
+<sub>[@](https://github.com/)</sub>
+<sub>[@](https://github.com/)</sub>
+<sub>[@](https://github.com/)</sub>
+<sub>[@](https://github.com/)</sub>
+<sub>[@carcrashxoxo](https://github.com/)</sub>
+<sub>[@deviousspoke](https://github.com/)</sub>
+<sub>[@](https://github.com/)</sub>
+<sub>[@](https://github.com/)</sub>
+<sub>[@](https://github.com/)</sub>
+<sub>[@](https://github.com/)</sub>
+<sub>[@](https://github.com/)</sub>
 
 ◜✦◞ㅤ
 ㅤ⠀ ⠀ ⠀ ⠀ ⠀⠀ ⠀ ⠀ ⠀ ⠀ㅤㅤㅤㅤㅤ                  ㅤㅤㅤㅤㅤㅤㅤㅤㅤ
