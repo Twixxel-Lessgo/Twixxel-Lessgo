@@ -107,10 +107,12 @@ I LOVE ALL MY OOMFS !! <3
 <sub>[@CloveredFields@](https://github.com/)</sub>
 <sub>[@ohmygodduh](https://github.com/)</sub>
 <sub>[@Larpchan](https://github.com/)</sub>
+<sub>[@glitterycupcakes](https://github.com/)</sub>
 <sub>[@mizziiivi](https://github.com/)</sub>
 <sub>[@mistydev20220](https://github.com/)</sub>
 <sub>[@Zadoodoo67](https://github.com/)</sub>
 <sub>[@jamatoP-lover](https://github.com/)</sub>
+<sub>[@SONNELLINOENTHUSIAST](https://github.com/)</sub>
 <sub>[@neutralmilkhotel@](https://github.com/)</sub>
 <sub>[@deerbites](https://github.com/)</sub>
 <sub>[@maveyy](https://github.com/)</sub>
@@ -121,7 +123,7 @@ I LOVE ALL MY OOMFS !! <3
 <sub>[@t4ngled0rgans](https://github.com/)</sub>
 <sub>[@carcrashxoxo](https://github.com/)</sub>
 <sub>[@deviousspoke](https://github.com/)</sub>
-<sub>[@](https://github.com/)</sub>
+<sub>[@SwansSorrow](https://github.com/)</sub>
 <sub>[@cheezecakelover](https://github.com/)</sub>
 <sub>[@slimenights](https://github.com/)</sub>
 <sub>[@jack-kennedyirl](https://github.com/)</sub>
