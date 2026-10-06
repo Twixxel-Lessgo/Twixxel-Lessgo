@@ -87,10 +87,10 @@ ${\color{#fffff}{\textsf "⠀ ⠀ Blb}} \color{#fffff}{\textsf{blblb}} \colo
 
 
 
- $${\color{#FFFFFF} My Duo :D ♡⃕　﹑ \space  ₊ ݁. •:}$$  <sub>[@1SPOKEISHERE](https://github.com/1SPOKEISHERE)</sub> ♡⃕　
+ $${\color{#FFFFFF} My \space Duo :D ♡⃕　﹑ \space My \space lil \space bro  ₊ ݁. •:}$$  <sub>[@1SPOKEISHERE](https://github.com/1SPOKEISHERE)</sub> ♡⃕　
 <br/>
 <br/>
-$${\color{#FFFFF} My Stupid Trio Friend's ♡⃕　﹑ \space  ₊• ₊˚⊹ }$$  <sub>[@Gatita-here](https://github.com/Gatita-here)</sub> ♡ <sub>[@TheHacker7n7](https://github.com/TheHacker7n7)</sub>
+$${\color{#FFFFF} My \space Stupid \space Trio \space Friend's ♡⃕　﹑ \space  ₊• ₊˚⊹ }$$  <sub>[@Gatita-here](https://github.com/Gatita-here)</sub> ♡ <sub>[@TheHacker7n7](https://github.com/TheHacker7n7)</sub>
 <br/>
 <br/>
 <sub>$${\color{#FFFFFF} Sillys♡⃕　﹑  ₊ ݁. •:}$$<sub/>
