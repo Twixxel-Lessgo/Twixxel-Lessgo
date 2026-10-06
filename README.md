@@ -87,10 +87,10 @@ ${\color{#fffff}{\textsf "⠀ ⠀ Blb}} \color{#fffff}{\textsf{blblb}} \colo
 
 
 
- $${\color{#FFFFFF} My Duo ♡⃕　﹑ \space  ₊ ݁. •:}$$  <sub>[@1SPOKEISHERE](https://github.com/1SPOKEISHERE)</sub> ♡⃕　
+ $${\color{#FFFFFF} My Duo :D ♡⃕　﹑ \space  ₊ ݁. •:}$$  <sub>[@1SPOKEISHERE](https://github.com/1SPOKEISHERE)</sub> ♡⃕　
 <br/>
 <br/>
-$${\color{#FFFFF} My Stupid Trio ♡⃕　﹑ \space  ₊• ₊˚⊹ }$$  <sub>[@Gatita-here](https://github.com/Gatita-here)</sub> ♡ <sub>[@TheHacker7n7](https://github.com/TheHacker7n7)</sub>
+$${\color{#FFFFF} My Stupid Trio Friend's ♡⃕　﹑ \space  ₊• ₊˚⊹ }$$  <sub>[@Gatita-here](https://github.com/Gatita-here)</sub> ♡ <sub>[@TheHacker7n7](https://github.com/TheHacker7n7)</sub>
 <br/>
 <br/>
 <sub>$${\color{#FFFFFF} Sillys♡⃕　﹑  ₊ ݁. •:}$$<sub/>
@@ -98,29 +98,34 @@ $${\color{#FFFFF} My Stupid Trio ♡⃕　﹑ \space  ₊• ₊˚⊹ }$$  <sub>
 I LOVE ALL MY OOMFS !! <3
 
 <sub>[@AcxerSonnellino](https://github.com/AcxerSonnellino)</sub>
+<sub>[@nullvoid](https://github.com/)</sub>
 <sub>[@Nyankit](https://github.com/)</sub>
 <sub>[@FLORAISONS](https://github.com/)</sub>
 <sub>[@PorphyroRoyal](https://github.com/)</sub>
+<sub>[BRIDALBAIT@](https://github.com/)</sub>
 <sub>[@Chemicalshots](https://github.com/)</sub>
-<sub>[CloveredFields@](https://github.com/)</sub>
+<sub>[@CloveredFields@](https://github.com/)</sub>
 <sub>[@ohmygodduh](https://github.com/)</sub>
 <sub>[@Larpchan](https://github.com/)</sub>
-<sub>[@](https://github.com/)</sub>
-<sub>[@](https://github.com/)</sub>
-<sub>[@](https://github.com/)</sub>
-<sub>[@](https://github.com/)</sub>
-<sub>[@](https://github.com/)</sub>
-<sub>[@](https://github.com/)</sub>
-<sub>[@](https://github.com/)</sub>
-<sub>[@](https://github.com/)</sub>
-<sub>[@](https://github.com/)</sub>
+<sub>[@mizziiivi](https://github.com/)</sub>
+<sub>[@mistydev20220](https://github.com/)</sub>
+<sub>[@Zadoodoo67](https://github.com/)</sub>
+<sub>[@jamatoP-lover](https://github.com/)</sub>
+<sub>[@neutralmilkhotel@](https://github.com/)</sub>
+<sub>[@deerbites](https://github.com/)</sub>
+<sub>[@maveyy](https://github.com/)</sub>
+<sub>[@sperkxena](https://github.com/)</sub>
+<sub>[@C-multifandom-DNCsignata](https://github.com/)</sub>
+<sub>[@itsyula-2](https://github.com/)</sub>
+<sub>[@swomblade](https://github.com/)</sub>
+<sub>[@t4ngled0rgans](https://github.com/)</sub>
 <sub>[@carcrashxoxo](https://github.com/)</sub>
 <sub>[@deviousspoke](https://github.com/)</sub>
 <sub>[@](https://github.com/)</sub>
-<sub>[@](https://github.com/)</sub>
-<sub>[@](https://github.com/)</sub>
-<sub>[@](https://github.com/)</sub>
-<sub>[@](https://github.com/)</sub>
+<sub>[@cheezecakelover](https://github.com/)</sub>
+<sub>[@slimenights](https://github.com/)</sub>
+<sub>[@jack-kennedyirl](https://github.com/)</sub>
+<sub>[@MADCOM-FREAK](https://github.com/)</sub>
 
 ◜✦◞ㅤ
 ㅤ⠀ ⠀ ⠀ ⠀ ⠀⠀ ⠀ ⠀ ⠀ ⠀ㅤㅤㅤㅤㅤ                  ㅤㅤㅤㅤㅤㅤㅤㅤㅤ
