@@ -116,6 +116,7 @@ I LOVE ALL MY OOMFS !! <3
 <sub>[@SONNELLINOENTHUSIAST](https://github.com/SONNELLINOENTHUSIAST)</sub>
 <sub>[@neutralmilkhotel@](https://github.com/neutralmilkhotel)</sub>
 <sub>[@deerbites](https://github.com/deerbites)</sub>
+<sub>[@silvyrrr](https://github.com/silvyrrr)</sub>
 <sub>[@maveyy](https://github.com/maveyy)</sub>
 <sub>[@sperkxena](https://github.com/sperkxena)</sub>
 <sub>[@C-multifandom-DNCsignata](https://github.com/C-multifandom-DNCsignata)</sub>
