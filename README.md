@@ -108,6 +108,7 @@ I LOVE ALL MY OOMFS !! <3
 <sub>[@CloveredFields@](https://github.com/CloveredFields)</sub>
 <sub>[@ohmygodduh](https://github.com/ohmygodduh)</sub>
 <sub>[@Larpchan](https://github.com/Larpchan)</sub>
+<sub>[@Itrappedfan](https://github.com/itrappedfan)</sub>
 <sub>[@glitterycupcakes](https://github.com/Glitterycupcakes)</sub>
 <sub>[@mizziiivi](https://github.com/mizziiivi)</sub>
 <sub>[@mistydev20220](https://github.com/mistydev20220)</sub>
