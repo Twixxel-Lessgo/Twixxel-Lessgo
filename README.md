@@ -41,7 +41,7 @@ ${\color{#fffff}{\textsf "⠀ ⠀ Blb}} \color{#fffff}{\textsf{blblb}} \colo
 
  (˶' ꒳ '˶)
 <br>
-<sub>[新book](https://twixxel.atabook.org)</sub> ◜✦◞ <sub>[straw](https://spokeshere-twixxen.straw.page)</sub> ◜✦◞ <sub>[prns](https://pronouns.cc/@Twixxel-Twixxen)</sub> ◜✦◞ <sub>[guns](https://guns.lol/twixell)</sub> ◜✦◞ <sub>[wall](https://walloftext.co/twixxel)</sub>
+<sub>[新book](https://twixxel.atabook.org)</sub> ◜✦◞ <sub>[straw](https://spokeshere-twixxen.straw.page)</sub> ◜✦◞ <sub>[prns](https://pronouns.cc/@Twixxenn-Twixxel)</sub> ◜✦◞ <sub>[guns](https://guns.lol/twixell)</sub> ◜✦◞ <sub>[wall](https://walloftext.co/twixxel)</sub>
 
 </details>
 
