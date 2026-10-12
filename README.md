@@ -10,36 +10,36 @@
 
 
 
-${\textsf{\color{#fffff} (✿˃ ᗜ ˂˵)⠀⠀ ⠀Gift Me Twixxel / Spoke / Sx7 Ponies please !⠀ ⠀ ⠀✦}}$ 
-⠀ ⠀ ⠀ ⠀ ⠀ㅤㅤㅤㅤ<sub>Twixxel skin count : 68 𓂃 ♡⃕　﹑ !<sub/>
+${\textsf{\color{#fffff} (✿˃ ᗜ ˂˵)⠀⠀ ⠀Gift Me Twixxel / Spoke / Sx7 Ponies /not forcing ⠀ ⠀✦}}$ 
+⠀ ⠀ ⠀ ⠀ ⠀ㅤㅤㅤㅤ<sub>Twixxel skin count : 70 𓂃 ♡⃕　﹑ ! <- all is not gifted <\sub> ^_#
 
 <p align="center">${\textsf{\color{#fffff} °}}$ 
 ㅤ  ㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤ⠀ ⠀ ⠀ ⠀ ⠀ ⠀ ⠀
 ⠀ ⠀ ⠀ ⠀ ⠀ ⠀ ⠀
 
-${\color{#fffff}{\textsf  (˶' ꒳ '˶)/}} \color{#fffff}{\textsf{Twixxel}} \color{#fffff}{\textsf{—}}  \color{#fffff}{\textsf{Shin}}$
+${\color{#fffff}{\textsf  (˶' - '˶)/}} \color{#fffff}{\textsf{Twixxel}} \color{#fffff}{\textsf{—}}  \color{#fffff}{\textsf{Shin}}$
 <br/>
 
 ${\color{#fffff}{\textsf C+h}} \color{#fffff}{\textsf{always}} \color{#fffff}{\textsf{might}}  \color{#fffff}{\textsf{late resp}}$
 <br/>
 
-<p align="center">${\textsf{\color{#fffff} -13 Dni}}$ 
+<p align="center">${\textsf{\color{#fffff} -13 Dni , basic dni}}$ 
 
 ${\color{#fffff}{\textsf Mostly}} \color{#fffff}{\textsf{in}} \color{#fffff}{\textsf{Mcyt}}  \color{#fffff}{\textsf{Area}}$
 <br/>
 <br/>
 ${\color{#fffff}{\textsf "⠀ ⠀ Blb}} \color{#fffff}{\textsf{blblb}} \color{#fffff}{\textsf{blb}}   \color{#fffff}{\textsf{blblblb⠀ ⠀ ⠀"}}$
-<p align="center">${\textsf{\color{#fffff} bmf pls}}$ 
+<p align="center">${\textsf{\color{#fffff} wassup}}$ 
 <br/>
 <br/>
 
- <sub> Art is by ִֶָ...𓂃 ࣪ ִֶָ་༘࿐ <sub>[Leker](https://github.com/FLORAISONS)</sub> </sub>
+ <sub> Art is by ִֶָ...𓂃 ࣪ ִֶָ་༘࿐ <sub>[Leker](https://github.com/FLORAISONS) !!! tysm </sub> </sub>
 <br/>
  
 <details>
- <summary> $${\color{#FFFFFF} Sign \space them \space plis \space ♡}$$</summary>
+ <summary> $${\color{#FFFFFF} ° \space sign \space ata \space °}$$</summary>
 
- (˶' ꒳ '˶)
+<sub> (˶^ _ #˶) 
 <br>
 <sub>[新book](https://twixxel.atabook.org)</sub> ◜✦◞ <sub>[straw](https://spokeshere-twixxen.straw.page)</sub> ◜✦◞ <sub>[prns](https://pronouns.cc/@Twixxenn-Twixxel)</sub> ◜✦◞ <sub>[guns](https://guns.lol/twixxell)</sub> ◜✦◞ <sub>[wall](https://walloftext.co/twixxel)</sub>
 
@@ -50,7 +50,7 @@ ${\color{#fffff}{\textsf "⠀ ⠀ Blb}} \color{#fffff}{\textsf{blblb}} \colo
 <p align="center">${\textsf{\color{#fffff} —}}$ 
  
 <details>
- <summary> $${\color{#FFFFFF}thank \space you \space ♡}$$</summary>
+ <summary> $${\color{#FFFFFF}thanks \space to \space ♡;}$$</summary>
  
 <sub>[pt-hall-of-media](https://github.com/pt-hall-of-media)</sub>
 <sub>[pt-walk-of-fame](https://github.com/pt-walk-of-fame)</sub>
@@ -60,23 +60,20 @@ ${\color{#fffff}{\textsf "⠀ ⠀ Blb}} \color{#fffff}{\textsf{blblb}} \colo
 <sub>[pt-fashion](https://github.com/pt-fashion)</sub>
 <sub>[pt-nominations](https://github.com/pt-nominations)</sub>
 <sub>[ponytowns-rewards](https://ponytowns-rewards)</sub>
-<sub>[]()</sub>
-<sub>[]()</sub>
+
 
 </details>
 
 
 <br/>
-<p aling="right">⠀ ⠀ ⠀ ⠀ ⠀⠀ ⠀ ⠀ ⠀ ⠀
-<img src="https://github.com/AcxerSonnellino/AcxerSonnellino/blob/e9851af1ec82091ab34673e338c90d9b3a357529/tumblr_d0cee632d56c2adbadbc82179c66e9d5_a8586f26_75.gif" width="30" />
+<p aling="center">⠀ ⠀ ⠀ ⠀ ⠀⠀ ⠀ ⠀ ⠀ ⠀
   °  ִֶָ...𓂃 ࣪ ִֶָ་༘࿐  . 
-  <img src="https://github.com/AcxerSonnellino/AcxerSonnellino/blob/0ee696b72b608327069640ef824615bd026d533e/tumblr_287d13cb87f6f46a872ba010276a6efc_a030fdc2_75.gif" width="30" />
 </p>
 
 
 ◜✦◞
 ㅤㅤ⠀ ⠀ ⠀ ⠀ ⠀⠀ ⠀ ⠀ ⠀ ⠀ㅤㅤㅤㅤㅤ                  ㅤㅤㅤㅤㅤㅤㅤㅤㅤ
-⺡ㅤ🌈﹒   ⠀ ⠀ ⠀ ⠀ ⠀            sign my Ata to be my oomf !
+⺡ㅤ🌈﹒   ⠀ ⠀ ⠀ ⠀ ⠀            sign my Ata? in my pleasure
 
 <br/>
 <p align="center">${\textsf{\color{#fffff} —}}$ 
@@ -86,54 +83,54 @@ ${\color{#fffff}{\textsf "⠀ ⠀ Blb}} \color{#fffff}{\textsf{blblb}} \colo
  <summary> $${\color{#FFFFFF}Click \space to \space see \space oomfie's}$$</summary
 <br>
 
- $${\color{#FFFFFF} My \space Duo :D ♡⃕　﹑ \space My \space lil \space bro  ₊ ݁. •:}$$  <sub>[@1SPOKEISHERE](https://github.com/1SPOKEISHERE)</sub> ♡⃕　
+ $${\color{#FFFFFF} My \space Duo :D ♡⃕　﹑ \space My \space lil \space bro  ₊ ݁. •:}$$  <sub>[@1SPOKEISHERE](https://github.com/1SPOKEISHERE) ♡⃕　
 <br/>
 <br/>
-$${\color{#FFFFF} My \space Stupid \space Trio \space Friend's ♡⃕　﹑ \space  ₊• ₊˚⊹ }$$  <sub>[@Gatita-here](https://github.com/Gatita-here)</sub> ♡ <sub>[@TheHacker7n7](https://github.com/TheHacker7n7)</sub>
+$${\color{#FFFFF} My \space Stupid \space Trio \space Friend's ♡⃕　﹑ \space  ₊• ₊˚⊹ }$$  <sub>[@Gatita-here](https://github.com/Gatita-here) ♡ <sub>[@TheHacker7n7](https://github.com/TheHacker7n7)
 <br/>
 <br/>
-<sub>$${\color{#FFFFFF} Sillys♡⃕　﹑  ₊ ݁. •:}$$<sub/>
+<sub>$${\color{#FFFFFF} Sillys♡⃕　﹑  ₊ ݁. •:}$$
 <br/>
-I LOVE ALL MY OOMFS !! <3
+hi oomfs,
 <br/>
-<sub>[@HoroNekko](https://github.com/HoroNekko)</sub> <sub> MY MAMA!!<sub/>
+<sub>[@HoroNekko](https://github.com/HoroNekko) MY MAMA!!
 <br/>
-<sub>[@AcxerSonnellino](https://github.com/AcxerSonnellino)</sub>
-<sub>[@nullvoid](https://github.com/nullvoid)</sub>
-<sub>[@Nyankit](https://github.com/nyankit)</sub>
-<sub>[@FLORAISONS](https://github.com/FLORAISONS)</sub>
-<sub>[@PorphyroRoyal](https://github.com/PorphyroRoyal)</sub>
-<sub>[BRIDALBAIT@](https://github.com/BRIDALBAIT)</sub>
-<sub>[@Chemicalshots](https://github.com/Chemicalshots)</sub>
-<sub>[@CloveredFields@](https://github.com/CloveredFields)</sub>
-<sub>[@ohmygodduh](https://github.com/ohmygodduh)</sub>
-<sub>[@Larpchan](https://github.com/Larpchan)</sub>
-<sub>[@Itrappedfan](https://github.com/itrappedfan)</sub>
-<sub>[@glitterycupcakes](https://github.com/Glitterycupcakes)</sub>
-<sub>[@mizziiivi](https://github.com/mizziiivi)</sub>
-<sub>[@mistydev20220](https://github.com/mistydev20220)</sub>
-<sub>[@Zadoodoo67](https://github.com/zadoodoo67)</sub>
-<sub>[@wonderlandraja](https://github.com/wonderlandraja)</sub>
-<sub>[@jamatoP-lover](https://github.com/jamatoP-lover)</sub>
-<sub>[@SONNELLINOENTHUSIAST](https://github.com/SONNELLINOENTHUSIAST)</sub>
-<sub>[@neutralmilkhotel@](https://github.com/neutralmilkhotel)</sub>
-<sub>[@deerbites](https://github.com/deerbites)</sub>
-<sub>[@silvyrrr](https://github.com/silvyrrr)</sub>
-<sub>[@maveyy](https://github.com/maveyy)</sub>
-<sub>[@sperkxena](https://github.com/sperkxena)</sub>
-<sub>[@C-multifandom-DNCsignata](https://github.com/C-multifandom-DNCsignata)</sub>
-<sub>[@itsyula-2](https://github.com/itsyula-2)</sub>
-<sub>[@swomblade](https://github.com/swomblade)</sub>
-<sub>[@t4ngled0rgans](https://github.com/T4ngled0rgans)</sub>
-<sub>[@carcrashxoxo](https://github.com/carcrashxoxo)</sub>
-<sub>[@deviousspoke](https://github.com/deviousspoke)</sub>
-<sub>[@SwansSorrow](https://github.com/SwansSorrow)</sub>
-<sub>[@cheezecakelover](https://github.com/Cheezecakelover)</sub>
-<sub>[@slimenights](https://github.com/slimenights)</sub>
-<sub>[@jack-kennedyirl](https://github.com/jack-kennedyirl)</sub>
-<sub>[@MADCOM-FREAK](https://github.com/MADCOM-FREAK)</sub>
+<sub>[@AcxerSonnellino](https://github.com/AcxerSonnellino)
+<sub>[@nullvoid](https://github.com/nullvoid)
+<sub>[@Nyankit](https://github.com/nyankit)
+<sub>[@FLORAISONS](https://github.com/FLORAISONS)
+<sub>[@PorphyroRoyal](https://github.com/PorphyroRoyal)
+<sub>[BRIDALBAIT@](https://github.com/BRIDALBAIT)
+<sub>[@Chemicalshots](https://github.com/Chemicalshots)
+<sub>[@CloveredFields@](https://github.com/CloveredFields)
+<sub>[@ohmygodduh](https://github.com/ohmygodduh)
+<sub>[@Larpchan](https://github.com/Larpchan)
+<sub>[@Itrappedfan](https://github.com/itrappedfan)
+<sub>[@glitterycupcakes](https://github.com/Glitterycupcakes)
+<sub>[@mizziiivi](https://github.com/mizziiivi)
+<sub>[@mistydev20220](https://github.com/mistydev20220)
+<sub>[@Zadoodoo67](https://github.com/zadoodoo67)
+<sub>[@wonderlandraja](https://github.com/wonderlandraja)
+<sub>[@jamatoP-lover](https://github.com/jamatoP-lover)
+<sub>[@SONNELLINOENTHUSIAST](https://github.com/SONNELLINOENTHUSIAST)
+<sub>[@neutralmilkhotel@](https://github.com/neutralmilkhotel)
+<sub>[@deerbites](https://github.com/deerbites)
+<sub>[@silvyrrr](https://github.com/silvyrrr)
+<sub>[@maveyy](https://github.com/maveyy)
+<sub>[@sperkxena](https://github.com/sperkxena)
+<sub>[@C-multifandom-DNCsignata](https://github.com/C-multifandom-DNCsignata)
+<sub>[@itsyula-2](https://github.com/itsyula-2)
+<sub>[@swomblade](https://github.com/swomblade)
+<sub>[@t4ngled0rgans](https://github.com/T4ngled0rgans)
+<sub>[@carcrashxoxo](https://github.com/carcrashxoxo)
+<sub>[@deviousspoke](https://github.com/deviousspoke)
+<sub>[@SwansSorrow](https://github.com/SwansSorrow)
+<sub>[@cheezecakelover](https://github.com/Cheezecakelover)
+<sub>[@slimenights](https://github.com/slimenights)
+<sub>[@jack-kennedyirl](https://github.com/jack-kennedyirl)
+<sub>[@MADCOM-FREAK](https://github.com/MADCOM-FREAK)
 
 ◜✦◞ㅤ
 ㅤ⠀ ⠀ ⠀ ⠀ ⠀⠀ ⠀ ⠀ ⠀ ⠀ㅤㅤㅤㅤㅤ                  ㅤㅤㅤㅤㅤㅤㅤㅤㅤ
-⺡ㅤ🌈﹒ ₊˚⊹  ˖⁺ ༝⭑ ♡⃕　﹑   ₊ ݁. • 
+⺡ㅤ...﹒ ₊˚⊹  ˖⁺ ༝⭑ ♡⃕　﹑   ₊ ݁. • 
  
