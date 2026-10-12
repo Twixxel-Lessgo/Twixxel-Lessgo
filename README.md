@@ -10,8 +10,8 @@
 
 
 
-${\textsf{\color{#fffff} (✿˃ ᗜ ˂˵)⠀⠀ ⠀Gift Me Twixxel / Spoke / Sx7 Ponies /not forcing ⠀ ⠀✦}}$ 
-⠀ ⠀ ⠀ ⠀ ⠀ㅤㅤㅤㅤ<sub>Twixxel skin count : 70 𓂃 ♡⃕　﹑ ! <- all is not gifted <\sub> ^_#
+<sub>${\textsf{\color{#fffff} (✿˃ ᗜ ˂˵)⠀⠀ ⠀Gift Me Twixxel / Spoke / Sx7 Ponies /not forcing ⠀ ⠀✦}}$
+<sub>Twixxel skin count : 70 𓂃 ♡⃕　﹑ ! - all is not gifted 
 
 <p align="center">${\textsf{\color{#fffff} °}}$ 
 ㅤ  ㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤ⠀ ⠀ ⠀ ⠀ ⠀ ⠀ ⠀
@@ -80,13 +80,13 @@ ${\color{#fffff}{\textsf "⠀ ⠀ Blb}} \color{#fffff}{\textsf{blblb}} \colo
  
 <details>
 
- <summary> $${\color{#FFFFFF}Click \space to \space see \space oomfie's}$$</summary
+ <summary> $${\color{#FFFFFF}Kyute \space lil \space durll \space oomfs}$$</summary
 <br>
 
  $${\color{#FFFFFF} My \space Duo :D ♡⃕　﹑ \space My \space lil \space bro  ₊ ݁. •:}$$  <sub>[@1SPOKEISHERE](https://github.com/1SPOKEISHERE) ♡⃕　
 <br/>
 <br/>
-$${\color{#FFFFF} My \space Stupid \space Trio \space Friend's ♡⃕　﹑ \space  ₊• ₊˚⊹ }$$  <sub>[@Gatita-here](https://github.com/Gatita-here) ♡ <sub>[@TheHacker7n7](https://github.com/TheHacker7n7)
+$${\color{#FFFFF} My \space Stupid \space Trio \space Friend's ♡⃕　﹑ \space  ₊• ₊˚⊹ }$$ <sub>[@Gatita-here](https://github.com/Gatita-here) ♡ <sub>[@TheHacker7n7](https://github.com/TheHacker7n7)
 <br/>
 <br/>
 <sub>$${\color{#FFFFFF} Sillys♡⃕　﹑  ₊ ݁. •:}$$
