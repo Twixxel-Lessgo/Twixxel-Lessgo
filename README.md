@@ -1,10 +1,12 @@
 <img width="640" src="" alt="" align="right" width="600"/></p>
-![Friends!](https://img.shields.io/badge/Twix-bars-2f3232?style=flat&labelColour=e7728f)
+![Friends!](https://img.shields.io/badge/Twix-bars-2f3232?style=plastic&labelColour=e7728f)
+
+![GitHub followers](https://img.shields.io/github/followers/Twixxel-Lessgo?style=plastic&plastic&color=2f3232&labelColor=00000a&label=Followers!)
+
 
 [![Twix bars](https://hits.sh/github.com/Twixxel-Lessgo.svg?style=plastic&label=(%5E%CF%89%5E)%20%E2%99%AA&extraCount=2000&color=2f3232&labelColor=00000)](https://hits.sh/github.com/Twixxel-Lessgo/)
 
 
-![GitHub followers](https://img.shields.io/github/followers/Twixxel-Lessgo?style=for-the-plastic&color=2f3232&labelColor=00000a&label=Followers!)
 
 
 
