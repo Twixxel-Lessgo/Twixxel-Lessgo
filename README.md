@@ -4,7 +4,7 @@
 [![Twix bars](https://hits.sh/github.com/Twixxel-Lessgo.svg?style=plastic&label=(%5E%CF%89%5E)%20%E2%99%AA&extraCount=2000&color=2f3232&labelColor=00000)](https://hits.sh/github.com/Twixxel-Lessgo/)
 
 
-![GitHub followers](https://img.shields.io/github/followers/Twixxel-Lessgo?style=for-the-plastic&color=de5576&labelColor=26487a&label=Followers!)
+![GitHub followers](https://img.shields.io/github/followers/Twixxel-Lessgo?style=for-the-plastic&color=2f3232&labelColor=00000a&label=Followers!)
 
 
 
