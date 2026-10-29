@@ -110,7 +110,6 @@ hi oomfs,
 <sub>[@CloveredFields@](https://github.com/CloveredFields)
 <sub>[@ohmygodduh](https://github.com/ohmygodduh)
 <sub>[@Larpchan](https://github.com/Larpchan)
-<sub>[@Itrappedfan](https://github.com/itrappedfan)
 <sub>[@glitterycupcakes](https://github.com/Glitterycupcakes)
 <sub>[@mizziiivi](https://github.com/mizziiivi)
 <sub>[@mistydev20220](https://github.com/mistydev20220)
