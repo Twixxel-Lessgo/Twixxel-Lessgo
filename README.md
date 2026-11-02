@@ -15,7 +15,7 @@
 
 
 
-<sub>${\textsf{\color{#fffff} (✿˃ ᗜ ˂˵)⠀⠀ ⠀Gift Me Twixxel / Spoke / Sp/so926 Ponies /not forcing !!! :3⠀ ⠀✦}}$
+<sub>${\textsf{\color{#fffff} (✿˃ ᗜ ˂˵)⠀⠀ ⠀Gift Me Twixxel / Spoke / Sp/so926 Ponies /not forcing⠀ ⠀✦}}$
 <sub>Twixxel skin count : 70 𓂃 ♡⃕　﹑ ! - all is not gifted 
 
 <p align="center">${\textsf{\color{#fffff} °}}$ 
